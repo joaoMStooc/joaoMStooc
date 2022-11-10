@@ -1,4 +1,4 @@
-# sobre min
+# sobre mim
 
 - 👋 olha meu nome é @joaoMStooc
 - meu email de contato é stocco.souza.joao@escola.pr.gov.br
